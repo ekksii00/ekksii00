@@ -8,4 +8,3 @@
 - 📫 How to reach me: Facebook, LinkedIn
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I love cats!
--->
